@@ -1,4 +1,4 @@
-# Hi, I'm Kennedy Syengo Mutie 👋
+# Hi, I'm Syengo Mutie 👋
 
 **Health Data Manager & IT Professional | Kenya**
 
